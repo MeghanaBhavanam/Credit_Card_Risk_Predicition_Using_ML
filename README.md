@@ -28,4 +28,4 @@ Special thanks to all contributors and libraries that have contributed to the de
 
 📧 **Contact**
 
-Have questions or ideas? Reach out to adithyanagendragummadi2004@gmail.com.
+Have questions or ideas? Reach out to meghanabhavanam7@gmail.com.
